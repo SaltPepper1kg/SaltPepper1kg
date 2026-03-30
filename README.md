@@ -1,6 +1,6 @@
 ## 🧂🧂🧂🧂
 
-# I'm getting boreeeeed
+# I'm getting booooored
 
 <!--
 **SaltPepper1kg/SaltPepper1kg** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
